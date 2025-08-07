@@ -26,4 +26,4 @@
 
 ### 限量套餐：按量购买,不限时间,流量用完即止。
 
-![liangxinyunprice](liangxinyun1.jpg)
+![liangxinyunprice](liangxinyun2.jpg)
