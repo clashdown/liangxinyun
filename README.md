@@ -1,6 +1,6 @@
 # 良心云机场官网最新地址+优惠码
 
-良心云机场官网最新地址：[良心云.com](https://a.suola.link/liangxinyun
+良心云机场官网最新地址：[良心云.com](https://a.suola.link/liangxinyun)
 
 ## 良心云机场简介
 
